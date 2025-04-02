@@ -1,1 +1,1 @@
-[ just trying ]
+[ trying ]
